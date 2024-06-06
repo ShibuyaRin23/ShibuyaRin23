@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ShibuyaRin23
+- 👋 Hi, I’m @Netisch23
 - 👀 I’m interested in computers
 - 🌱 I’m currently learning Laws
 - 💞️ I’m looking to collaborate on 
